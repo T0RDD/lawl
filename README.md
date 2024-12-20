@@ -1,1 +1,1 @@
-# lawl
+# lawl whats goood chattay my name is valentine !! u can usually call me val but wtv .. im a fan of eddsworld , mouthwashing , fnaf , etc .. im reaally lonely i need friends bro pls bro i beg . i play vrchat too btw!!1! dni problematic people and dni Tori_Luna (fuck you)
