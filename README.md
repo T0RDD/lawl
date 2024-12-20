@@ -1,1 +1,5 @@
-# lawl whats goood chattay my name is valentine !! u can usually call me val but wtv .. im a fan of eddsworld , mouthwashing , fnaf , etc .. im reaally lonely i need friends bro pls bro i beg . i play vrchat too btw!!1! dni problematic people and dni Tori_Luna (fuck you)
+hi gangy .. my name is val / valentine, im 16 and he/they pansexual . 
+im in eddsworld , mouthwashing , fnaf .. etc because theres too much to name .
+dni problematic ppl and Tori_Luna ^.^ (fuck you.)
+i also play vrchat, my user is valala if u wanna add me !!
+if u read this far js say hi atp im lonely broooo.
